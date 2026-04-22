@@ -1,0 +1,1 @@
+# lingonews-legal
